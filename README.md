@@ -13,4 +13,4 @@
 <br>
 You can contact me via ✉: chrisuser199@gmail.com
 <br>
-You can also contact me via tweeter: Chris Kay 
+You can also contact me via tweeter: @yaksirhC 
